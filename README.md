@@ -1,1 +1,0 @@
-# Report-detail-KPU-updated
